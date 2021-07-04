@@ -1,2 +1,0 @@
-# noob
-dont please
